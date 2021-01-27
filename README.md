@@ -1,1 +1,0 @@
-# Desafio-Kukac-Richard
